@@ -1,6 +1,6 @@
 - 👋 Hi, I’m batyrkhan
 - 👀 I’m interested in TWICE kpop group and skiing
-- 🌱 I’m currently learning programming
+- 🌱 I’m currently learning things like coding, machine learning, taekwondo and many more
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me - 05Batya05 in Roblox
 - 😄 Pronouns: he/him
